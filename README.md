@@ -1,1 +1,1 @@
-# Dicord-bot-altyap-
+Bu Altyapı OĞUZHAN EFE Tarafından Paylaşılmıştır
